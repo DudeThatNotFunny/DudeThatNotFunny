@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Kristians Vitolins
 - 👀 I’m interested in programming, gaming, computers, network and in lot more things! ;)
-- 🌱 I’m currently learning "Computer Technician"
+- 🌱 I’m currently studying "Computer Technician"
 - 📫 How to reach me:
      - Email: kristians.vitolins@gmail.com
      - Instagram: @kristians.vitolins
